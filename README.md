@@ -1,4 +1,6 @@
 # CodSoft
 
 ##Task 1
-[Recording 2024-02-18 10-22.webm](https://github.com/Aastha-520609/CodSoft/assets/77205408/08cf3ea5-d969-44a9-947c-3f88f44caa6a)
+![image](https://github.com/Aastha-520609/CodSoft/assets/77205408/b606af07-9974-43e6-9a35-76dd15c8fb64)
+https://github.com/Aastha-520609/CodSoft/assets/77205408/d9a1713a-80ef-4772-8a4e-03c35856b2d1
+
